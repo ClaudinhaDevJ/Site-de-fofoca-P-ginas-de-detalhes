@@ -1,0 +1,1 @@
+# Site-de-fofoca-P-ginas-de-detalhes
